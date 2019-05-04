@@ -1,0 +1,2 @@
+# kryptowaluty
+taki sobie
